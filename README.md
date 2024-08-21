@@ -1,1 +1,1 @@
-Fulltidsprofesjonell
+Fremtidig firebarnsfar
